@@ -1,0 +1,1 @@
+# Adobe-InCopy-activation-by-vaas
